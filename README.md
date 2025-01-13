@@ -1,0 +1,7 @@
+- Hola, soy @Nreino
+- 👀 Me interesa los libros, leer sobre lugares para visitarlos. Y mi ex.
+- 🌱Actualmente estoy aprendiendo Alemán
+- 💞️Busco colaborar en una empresa grande y ser famosa:D
+- 📫 Cómo llegar a mí: 0959640628
+- 😄 Pronombres: Pao, Nath, Ratoncita
+- ⚡ Dato curioso: no supero a mi ex.
